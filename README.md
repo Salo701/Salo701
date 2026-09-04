@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Salo701
-- 👀 I’m interested in programming and some astronomy stuff
+- 👀 I’m interested in programming and some economy stuff
 - 🌱 I’m currently learning Programming in Kocaeli University
 - 💞️ I’m not looking to collaborate on no1 right now cus ı dont have very strait info about what im trying to do
 - 📫 How to reach me (Salimkesergg@gmail.com)
